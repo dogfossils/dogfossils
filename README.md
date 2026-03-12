@@ -5,4 +5,4 @@ i do lua, some js and a bit of c<br>
 <br>
 i like keeping my previous work relatively private 😇 im also bad at volunteer work, as i get distracted easily
 ### socials <br>
-🔗 [dogfossils.neocities.org](https://dogfossils.neocities.org/)
+🔗 [brokemutt.net](https://brokemutt.net/)
